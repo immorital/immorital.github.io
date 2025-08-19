@@ -10,7 +10,7 @@ The day after Donald Trump's inauguration feels heavy with the weight of irony a
 The imagery of last night's events demands our attention. Not because of their grandeur but due the grotesque symbolism which was displayed. The scene at Capital Arena is nothing short of a masterstroke of manufactured reverence, in simpler terms, its a carefully orchestrated spectacle designed to evoke awe from MAGA supporters and vulnerable citizens while disguising the corrosion of the countries elected leaders beneath the surface. Yet amid the ceremonial fanfare, one moment shattered the illusion and laid bare the true character of this new era that we are rushing in.  
 
 Elon Musk, a man whose fortune and influence have allowed him for the past 6 years to fashion himself as a modern-day Prometheus, took to the stage to congratulate his close friend and ally, Donald Trump. What unfolded next was as shocking as it was revealing : Musk raised his arm in a salute, a gesture that can only be described as a Nazi Salute. 
-![[Elon Salute.png]]
+![Elon Salute](https://raw.githubusercontent.com/immorital/immorital.github.io/refs/heads/master/Images/Elon%20Salute.png)
 Let us not mince words.  
 This was no accident.
 This was no misstep.
