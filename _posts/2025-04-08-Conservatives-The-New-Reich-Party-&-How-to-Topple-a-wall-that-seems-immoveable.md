@@ -14,15 +14,15 @@ Elon Musk, a man whose fortune and influence have allowed him for the past 6 yea
 Let us not mince words.<br/>
 This was no accident.<br/>
 This was no misstep.<br/>
-This was no misunderstood gesture.<br/>
+This was no misunderstood gesture.<br/><br/>
 
 It was a deliberate act, performed in full view of the world, embodying the dark reality we currently now face. This act evokes a flurry of emotion - Anger, despair, sadness, hatred, and if you feel this know that you are justified in them. In these moments we must resist the temptation to be paralyzed by these feelings. We must harness them, Turn our collective outrage into a force capable of challenging the plutocratic system that brought us here.
 <br/>
 ## The Rise of the Plutocratic State
-As much as I'd like to say I was blindsided by last nights actions, the sad reality is, I'm not. To understand the significance of Musk's gesture, we must first confront the broader context in which it occurred, as the media and right-wing media specifically will try to change this context. America has always wrestled with the tension between Democracy and Capitalism, but in recent decades and years, that tension has tipped in the favor of the latter., What we now face is not just a crisis of governance but a wholesale capture of the state by which the ultra-rich are the ones who select the ruling class and which laws will effect the everyday citizen. This new plutocracy isn't content with economic domination alone; Its very clear and evident that they seek to reshape the cultural and political landscape to cement its power indefinitely. Figures like Musk and Trump are not anomalies, they merely are logical outcomes of a system that, despite its upsides, rewards greed, punishes dissent, and equates wealth with virtue. They represent and embody a new ruling class, one that seeks to see itself unbound by the constraints of morality and accountability.<br/>
+As much as I'd like to say I was blindsided by last nights actions, the sad reality is, I'm not. To understand the significance of Musk's gesture, we must first confront the broader context in which it occurred, as the media and right-wing media specifically will try to change this context. America has always wrestled with the tension between Democracy and Capitalism, but in recent decades and years, that tension has tipped in the favor of the latter., What we now face is not just a crisis of governance but a wholesale capture of the state by which the ultra-rich are the ones who select the ruling class and which laws will effect the everyday citizen. This new plutocracy isn't content with economic domination alone; Its very clear and evident that they seek to reshape the cultural and political landscape to cement its power indefinitely. Figures like Musk and Trump are not anomalies, they merely are logical outcomes of a system that, despite its upsides, rewards greed, punishes dissent, and equates wealth with virtue. They represent and embody a new ruling class, one that seeks to see itself unbound by the constraints of morality and accountability.<br/><br/>
 
 This Nazi salute then, is not a gesture.<br/>
-This is a declaration of intent.<br/>
+This is a declaration of intent.<br/><br/>
 
 It signals a willingness to abandon even the pretense of democratic values in favor of a regime that prioritizes power and profit above all else.<br/>
 It is a warning of what is to come if we do not act.<br/>
@@ -30,7 +30,7 @@ It is a warning of what is to come if we do not act.<br/>
 ## The Wall That Must Be Toppled
 The challenge before us today, feels insurmountable, like standing in front of an immovable wall. This wall however, Is not made of brick and mortar but of systemic oppression, economic inequality, and apathy displayed by those who benefit from the status quo. It is fortified by propaganda, by the normalization of injustice, and by the fear that paralyzes those who would resist.
 I no longer will be paralyzed
-History reminds us that no wall is truly immovable. The Berlin Wall, apartheid, colonial empires - all once seemed invincible until they crumbled under the weight of collective resistance. The question is not whether this wall can fall but rather whether we have the courage, the strategy, and the unity to make it happen.
+History reminds us that no wall is truly immovable. The Berlin Wall, apartheid, colonial empires - all once seemed invincible until they crumbled under the weight of collective resistance. The question is not whether this wall can fall but rather whether we have the courage, the strategy, and the unity to make it happen.<br/>
 
 ## The Arm that strangles
 Our resistance cannot be a mere reaction; It must be a deliberate, sustained effort. We can no longer afford to rely on polite appeals to those in power or to place our hopes and dreams in the hands of our elected officials and institutions that have failed us time and time again.<br/>
