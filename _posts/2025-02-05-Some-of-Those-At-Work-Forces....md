@@ -1,3 +1,10 @@
+---
+layout: post
+title: "Some of Those That Work Forces..."
+author: "Katou"
+categories: politics
+---
+
 One day this week I was listening to Rage Against the Machine — specifically their track _Killing in the Name_ — when a particular verse stopped me in my tracks:
 
 > “Some of those that work forces, are the same that burn crosses.”
