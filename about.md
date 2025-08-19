@@ -9,4 +9,14 @@ The Crag is where climbers test themselves against stone, gravity, and their own
 
 
 
+
+
+
+
+
+
+
+
+
+
 ⚠️ **Note:** This site is **not affiliated with [thecrag.com](https://thecrag.com)**, the international climbing route database. The similarity in name is coincidental, this is an independent project.
