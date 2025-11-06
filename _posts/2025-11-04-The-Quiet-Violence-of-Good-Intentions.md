@@ -26,9 +26,7 @@ It was about control. About drawing the conversation back to comfort zones.
 <br/><br/>
 What it revealed to me was how identity can become a shield in white-led or white-majority spaces. “Mixed” or “BIPOC” identity gets used like a hall pass to avoid real accountability when marginalized communities or their members can or will be affected by something.
 <br/><br/>
-This same behavior showed itself again recently when a public figure associated with our broader circles was found to have a Nazi tattoo and a history of promoting violent far-right rhetoric. I raised concerns about how someone like that could have even gotten close to movements claiming to stand for liberation, and I made it clear that a stronger stance on this issue was necessary, especially for Black members who would understandably feel unsafe or alienated. Instead of solidarity, I was met with deflection. Some accused me of “rage-quitting” when I told them that I would leave the organization because of this. Others, including a few Black members, told me they didn’t care or even supported the candidate despite their past and the marks of hatred toward people like me on their body.
-<br/><br/>
-That moment made everything crystal clear. “As a BIPOC person…” had become a way to silence any critique of racial dynamics rather than confront it. My skin color was effectively a token to be awarded to the white members and not respected.
+This same behavior showed itself again recently when a public figure associated with our broader circles was found to have a Nazi tattoo and a history of promoting violent far-right rhetoric. I raised concerns about how someone like that could have even gotten close to movements claiming to stand for liberation, and I made it clear that a stronger stance on this issue was necessary, especially for Black members who would understandably feel unsafe or alienated. Instead of solidarity, I was met with deflection. Some accused me of “rage-quitting” when I told them that I would leave the organization because of this. Others, including a few Black members, told me they didn’t care or even supported the candidate despite their past and the marks of hatred toward people like me on their body. That moment made everything crystal clear. “As a BIPOC person…” had become a way to silence any critique of racial dynamics rather than confront it. My skin color was effectively a token to be awarded to the white members and not respected.
 <br/><br/>
 That’s what tokenization looks like in real time.  
 You’re not seen as a peer, but you are a display item in the window of the mall. You are an insurance policy against accusations of racism to them.
@@ -50,9 +48,7 @@ Resistance.
 <br/><br/>
 And that’s the heart of it: every time a Black person challenges a white-led structure, the response is never dialogue, it’s discipline. The “discussion” (if it can even be called one), becomes more about procedure, tone, or process rather than the truth.
 <br/><br/>
-By the end, I realized I was more exhausted than angry. I had spent a month trying to make a space better for people who look like me and those who don’t. All I achieved in that time was being gaslit, second-guessing myself at every turn, and feeling invalidated.
-<br/><br/>
-Looking back, the irony is painful. I joined the organization because I believed it was different. I believed the talk of “mutual aid” and “community defense” actually meant something and that the people in the organization held it as important as I do. But after a while, I started to understand what most Black organizers learn too late:
+By the end, I realized I was more exhausted than angry. I had spent a month trying to make a space better for people who look like me and those who don’t. All I achieved in that time was being gaslit, second-guessing myself at every turn, and feeling invalidated. Looking back, the irony is painful. I joined the organization because I believed it was different. I believed the talk of “mutual aid” and “community defense” actually meant something and that the people in the organization held it as important as I do. But after a while, I started to understand what most Black organizers learn too late:
 <br/><br/>
 Solidarity that only exists when you agree is just another form of control.
 <br/><br/>
