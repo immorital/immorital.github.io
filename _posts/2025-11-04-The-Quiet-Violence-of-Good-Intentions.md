@@ -10,6 +10,10 @@ That kind of work was clean in a way. No committees, no fragile egos, no hidden 
 <br/><br/>
 Organizing, though, is different. It’s messy, emotional, and full of contradictions. It’s also where I learned that some of the most harmful forms of racism don’t come from those who wear red hats or shout slurs. They come from the ones who say “I’m with you.” Over a short but heavy period serving as a liaison for a leftist organization, I experienced three things that completely reshaped how I see “allyship” and “solidarity,” and have helped me finally understand why Black radicals are often segregated from their white counterparts. These aren’t distant reflections; they’re hard lessons learned in real time about performance, control, and the quiet violence of good intentions.
 <br/><br/>
+---
+
+## 1. Performative Allyship as Social Currency
+
 It’s important to say that this organization I was the liaison for, like many others that grow out of niche “American” interests, had a heavy white majority. That alone isn’t an issue, but it sets the stage for how race and power quietly shape everything from who gets heard, who gets dismissed, all the way to who gets disciplined for breaking unspoken social rules.
 <br/><br/>
 The first thing I noticed was how performative allyship operates as a kind of social currency. Many white members are more interested in appearing anti-racist than actually building trust or accountability with Black members, inside and outside the organization. It should be stated plainly that this dynamic rewards optics over honesty, and it gives white liberals and leftists a safety net.
